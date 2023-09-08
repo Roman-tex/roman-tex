@@ -2,4 +2,4 @@
 
 ---
 
-[Telegram](https://t.me/FlashRS0)
+[Telegram](https://t.me/roman_tex)
